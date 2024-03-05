@@ -1,0 +1,2 @@
+# Nomes
+colocando para tradu
